@@ -1,4 +1,4 @@
-## The Willow Woman
+**The Willow Woman**
 
 Standing in the clearing of the woods a mile from town, I marked today as the first day I had ever taken directions from the back of a business card.  
 

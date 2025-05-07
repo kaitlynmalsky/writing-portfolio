@@ -1,4 +1,4 @@
-# By The Devil's Tooth
+**By The Devil's Tooth**
 
 The air in the clinic was cold as Monday gathered gathered her things from the staff room at the far end of the clinic corridor. She quickly pulled her black puffer coat over her scrubs, paying no mind to the sweat underneath. Keys dangled on her neck. She swiftly pulled herself out of the room, the moon shining on her back.
 

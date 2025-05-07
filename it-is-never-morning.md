@@ -1,4 +1,4 @@
-## It is never morning
+**It is never morning**
 
 For a mirror. I only see fluorescent light  
 Light which the Sun wouldn't wipe off her brow on the hottest
